@@ -1,1 +1,1 @@
-# vlz.xyz
+https://pastefy.app/lEskGYls/raw
